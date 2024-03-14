@@ -1,2 +1,4 @@
-# V13-bots
-Hayrinizi görün yakında burda
+# V14 boş altyapı
+akira dostuma sevgilerimle
+discord.gg/safecode
+
